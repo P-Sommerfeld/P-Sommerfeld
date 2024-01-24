@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @P-Sommerfeld
-- (this profiles repositories are currently inactive - I am working on migrating my old profile to this one)
+- (this profile is currently inactive - I am working on migrating my old profile to this one)
 - more to come... :) 
 
 
